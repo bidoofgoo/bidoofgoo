@@ -1,4 +1,14 @@
 ### Hi there 👋
+My nae rick
+
+i make thing
+app computer arts
+whatev
+gaem
+
+😎
+
+That's all folks ;)
 
 <!--
 **bidoofgoo/bidoofgoo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
